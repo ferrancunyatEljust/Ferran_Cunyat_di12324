@@ -1,1 +1,3 @@
 # Ferran_Cunyat_di12324
+
+Repositori per a entregar activitats ...
